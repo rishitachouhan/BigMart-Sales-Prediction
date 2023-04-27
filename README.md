@@ -61,4 +61,4 @@ https://www.kaggle.com/datasets/brijbhushannanda1979/bigmart-sales-data
 
 ---
 
-Feel free to send me your queries at vihasharma1099@email.com
+Feel free to send me your queries at rishitachouhan@icloud.com
